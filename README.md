@@ -11,7 +11,7 @@
 
 📬 Reach me at: [mwangiananita10@gmail.com](mailto:mwangiananita10@gmail.com)  
 🌐 Portfolio: *coming soon...stay tuned*  
-🎓 Fun Fact: I’m graduating July 11th 2025 🎉  
+🎓 Fun fact i love masinde
 
 ---
 
